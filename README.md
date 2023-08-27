@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1062087380003201075/1145265423345008650/IMG_1634.jpg
+![IMG_1634](https://github.com/toxururira/toxururira/assets/143314991/57575a0f-a229-43d0-8cef-8bc5df02abfc)
