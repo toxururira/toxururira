@@ -2,7 +2,7 @@
 
 bfyi
 
-- i gatekeep lyney,lynette and freminet, dni if you publically lovemail him or think you like them more than me. enjoyers and likers FEEL FREE TO INT :D
+- i gatekeep lyney, lynette and freminet, dni if you publically lovemail him or think you like them more than me. enjoyers and likers FEEL FREE TO INT :D
 
 - i make very vulgar and kms/kys jokes.
 
